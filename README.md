@@ -4,7 +4,7 @@
 **M.S. in Applied Data Science**  
 Syracuse University, School of Information Studies — *May 2026*  
 
-**B.E. in Information Technology **  
+**B.E. in Information Technology**  
 Dwarakadas J. Sanghvi college Of Engineering, Mumbai University — *May 2021*  
 
 ---
